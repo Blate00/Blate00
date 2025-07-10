@@ -38,7 +38,7 @@ Estoy buscando nuevos desafíos profesionales donde pueda seguir creciendo como 
 
 📧 **Email:** antoniodavidcoo@gmail.com
 📞 **Teléfono:** +56 9 90414021 
-🔗 **LinkedIn:** [[diego-sanchez-46931013b](https://www.linkedin.com/in/diego-sanchez-46931013b/)](https://www.linkedin.com/in/david-coo-gallardo-110436271/)
+🔗 **LinkedIn:** [(https://www.linkedin.com/in/david-coo-gallardo-110436271/)]
 
 ## 📄 Curriculum Vitae
 
