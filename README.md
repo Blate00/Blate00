@@ -42,4 +42,4 @@ Estoy buscando nuevos desafíos profesionales donde pueda seguir creciendo como 
 
 ## 📄 Curriculum Vitae
 
-Para una visión más detallada de mi experiencia profesional y formación, puede consultar mi [Curriculum Vitae](./Curriculum%Vitae%David%.pdf).
+Para una visión más detallada de mi experiencia profesional y formación, puede consultar mi [Curriculum Vitae](./Curriculum%20Vitae%20David.pdf).
